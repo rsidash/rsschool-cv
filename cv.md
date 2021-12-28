@@ -1,7 +1,7 @@
 # Roman Sidash
 
 ### Contact
-** Address **
+**Address**
 Almaty, Kazakhstan
-** Email **
+**Email**
 r.sidash93@gmail.com
